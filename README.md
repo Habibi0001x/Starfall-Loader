@@ -5,3 +5,6 @@
 4. Hunty Zombie - Getting worked on
 5. Grow a Garden - Gettin worked on
 6. Rivals - Getting worked on 
+
+
+-- // join https://discord.gg/ue93gsfkwg for the hub. 
